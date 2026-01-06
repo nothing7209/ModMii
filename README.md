@@ -1,3 +1,5 @@
 I am NOT responsible for bricked Devices.
-YOU wish to install this Software
-so DONT think I am responsible.
+YOU wish to install this Software.
+So DONT think I am responsible or i will laugh at YOU.
+
+And older releases are private because they dont work right. (and i also deleted them)
